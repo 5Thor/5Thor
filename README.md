@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @5Thor
-- 👀 I’m interested in photography
+- 👀 I’m interested in intellectual classic fashion photography
 - 🌱 I’m currently learning life
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate 
 - 📫 How to reach me t.me/atello
 
 <!---
